@@ -12,5 +12,3 @@
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/louisiana-public/blob/main/b18--1.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/louisiana-public/blob/main/cumulus.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/louisiana-public/blob/main/cumulus5.jpg)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/louisiana-public/blob/main/snapshot.jpg)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/louisiana-public/blob/main/snapshot6.jpg)
